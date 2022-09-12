@@ -43,4 +43,9 @@ Flüssige Zutaten
 - Bei 180°C (vorgeheizt) 30min backen, nach halber Zeit wenden.
 - Noch 10 Minuten sim ausgeschalteten Ofen stehen lassen.
 
+## Gewürzideen
 
+- Salbei
+- Muskat
+- Fenchelsamen
+- Thymian
