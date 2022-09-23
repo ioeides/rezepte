@@ -6,7 +6,7 @@
 ## Zutaten
 
 - 3 Schalotten
-- 3 Knoblauchzehen
+- 1 Knoblauchzehen
 - 1 große Karotte
 - 1 Stange Staudensellerie
 - 1 EL Olivenöl
